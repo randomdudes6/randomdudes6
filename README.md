@@ -1,0 +1,5 @@
+- 👋 Hi, I’m UnityG
+- 👀 I’m interested in Java, C# and making ARGs video.
+- 🌱 I’m currently learning Nothing
+- 💞️ I’m looking to collaborate on Idk
+- 📫 How to reach me Discord, Element
